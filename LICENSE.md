@@ -1,4 +1,4 @@
-
+elite pls donate Script is the best pls donate Script, featuring auto-sell and no cooldown. Safe and powerful for all your needs.
 
 
 
